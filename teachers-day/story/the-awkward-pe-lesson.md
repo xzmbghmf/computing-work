@@ -28,8 +28,6 @@ No omake sorry (I can't think of one!)!
 
 **Word count: 434**
 
-**Next up: You choose!**
-
 So...I just wanna say thank you to Ms Lee for supporting us and making PE lessons so interesting! I really enjoy your lessons! Thank you for encouraging us (me) and giving me advice when I really need it! Stay safe and Happy Teachers' Day!
 
 Yan Ching 袁靖
