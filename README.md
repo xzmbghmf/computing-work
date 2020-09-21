@@ -1,6 +1,6 @@
 # Hello world!
 
-Author-san's notes: If you see at the end of my story 'Next chapter: You choose!' you can make pull reuests! Any requests, please feel free to contact me/make a pull request! (oh and please call me author-san)
+Author-san's notes: Any requests, please feel free to contact me/make a pull request! (oh and please call me author-san)
 
 **Hello world!** I am Yan Ching from [Dunman High School](http://dunmanhigh.moe.edu.sg)!
 
